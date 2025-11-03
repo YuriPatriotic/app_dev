@@ -1,4 +1,4 @@
-# **My Favorite Series/Movies of All Time**
+# **My Favorite Series of All Time**
 
 # 1. **Friends**
 
@@ -49,3 +49,5 @@ One day, the hotel gains a new general manager — Gu Chan-sung (played by Yeo J
 As they work together, Man-wol and Chan-sung’s relationship deepens, and through him, she begins to rediscover her humanity and confront the tragic secrets of her past.
 
 As an IU fanboy, I enjoyed this Kdrama and I rewatched it multiple times.
+
+
